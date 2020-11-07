@@ -2,7 +2,7 @@
 
 [my twitter](https://twitter.com/LarryDoubleLie)
 
-my cantact:
+my contact:
 +  larrydoublelie@qq.com
 +  catchdaveaa@gmail.com
 
